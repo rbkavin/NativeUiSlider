@@ -4,5 +4,5 @@ tutorial link
 https://youtu.be/Ewnon4cbi3k
 
 social :
-instagram.com/rbkavin
+https://instagram.com/rbkavin
 https://rbkaivn.in
